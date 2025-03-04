@@ -1,1 +1,1 @@
-# yiqicao-web.github.io
+# [yiqicao](https://yiqicao.my/)
